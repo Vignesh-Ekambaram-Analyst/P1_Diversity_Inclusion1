@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/07428b0a-0f4b-4100-a712-43fb28e9b585)
 
 ## Diversity & Inclusion Dashboard Analysis
 
